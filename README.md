@@ -1,1 +1,0 @@
-# blazeAtul.github.io
